@@ -1,6 +1,6 @@
 # Sobre mim
 
-Ola sou o Nathan tenho 21 anos estou fazendo faculdade de engenharia da computação.
+Ola sou o Nathan tenho 22 anos estou fazendo faculdade de Analise e Desenvolvimento de Sisitemas.
 
 # Estudando 
 
